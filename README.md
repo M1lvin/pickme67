@@ -1,1 +1,1 @@
-# pickme67
+# pickme67Alisultan Pakhridinov — участник команды
